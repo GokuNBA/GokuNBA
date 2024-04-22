@@ -9,7 +9,7 @@
   <img src="https://64.media.tumblr.com/e03f6b1f720d38d4506b31913988edaf/71aa4082873c69c6-16/s1280x1920/d5bec3a26e5d0437178c598b2b7581465be0994b.png" /> <br>
   <br>
   <img src="https://64.media.tumblr.com/e6e38e6fc4056304b0c8cf356c31d1a4/df34eaf2a7220213-55/s75x75_c1/bd3b7f751465c3917214d2aa7c4c54addc5f5d4e.gifv" alt="animated" /> 
-  DNI: none!! those are pointless. I block freely
+  DNI: nothing!! those are pointless. I block freely
   <img src="https://64.media.tumblr.com/65a8e9f87897adbed42403cadd83e667/df34eaf2a7220213-f5/s75x75_c1/101795643382a261c1a7e98ef1734be4a31b69d0.gifv" alt="animated" /> <br>
   <img src="https://64.media.tumblr.com/2b4b641076ee63deb2867f7fa1739fbb/df34eaf2a7220213-e7/s75x75_c1/ec73bccbd429b0c5b1a74379c3887a70c0bd635c.gifv" alt="animated" />
   BYI: socially inept, low energy, dry texter. will not add you upon first interaction
