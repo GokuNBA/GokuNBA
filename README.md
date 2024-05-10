@@ -21,5 +21,5 @@
   Extra: I'm usually off-tab drawing or some shit, so w2i if I am/seem to be AFK!!
   <img src="https://64.media.tumblr.com/673d19076c15e9c27ae5c20071fe6ebc/df34eaf2a7220213-ff/s75x75_c1/85a72b897758a6573483c44a37f74036f98cdbd5.gifv" alt="animated" /> <br>
   <br>
-  <img src="https://cdn.discordapp.com/attachments/1133070040439210105/1195759522665484448/Sonic_Mania_COPE.png?ex=6627db56&is=662689d6&hm=b372a57a186d4468afd103ff4e02c064638fd23a9b43fe3fb392229e4dbd3af6&" />
+  <img src="https://64.media.tumblr.com/e3202ebd021567f8a6213f78a9d34c34/00dd49ccc1e9462c-ec/s250x400/94057a28bf0e6cac8e21ab93022873e8ed06dacc.pnj" />
 </p>
