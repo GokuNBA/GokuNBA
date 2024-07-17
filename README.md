@@ -23,3 +23,7 @@
   <br>
   <img src="https://64.media.tumblr.com/e3202ebd021567f8a6213f78a9d34c34/00dd49ccc1e9462c-ec/s250x400/94057a28bf0e6cac8e21ab93022873e8ed06dacc.pnj" />
 </p>
+<!-- (known) asset credits
+EarthBound and MOTHER 3 stamps: thisdastampdoesnotexist.tumblr.com
+Sonic Mania COPE image: I cropped it, but the full screenshot is from nerdy_pug_king1 on Reddit
+EarthBound pixels: me.. please pretend that the Jeff one was intentionally reversed due to personal bias. -->
