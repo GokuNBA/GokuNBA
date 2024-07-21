@@ -15,7 +15,7 @@
   BYI: socially inept, low energy, dry texter. will not add you upon first interaction
   <img src="https://64.media.tumblr.com/ddfd1d279d9f185ff3583eef16e4efa0/df34eaf2a7220213-20/s75x75_c1/3ed5518e6484ffb480da22b39d88ab6bfbec62bb.gifv" alt="animated" /> <br>
   <img src="https://64.media.tumblr.com/2a18daf60e66efc6466579102335b2d6/df34eaf2a7220213-b7/s75x75_c1/303e1188a260b4f3938b87fe62a6724020ce76e3.gifv" alt="animated" />
-  Likes: Friday Night Funkin', EarthBound, Pokemon, Alpharad, MLP, webcomics, character design, hue shifting, etc.
+  Likes: Friday Night Funkin', EarthBound, Pokemon, Chikn Nuggit, MLP, webcomics, character design, hue shifting, etc.
   <img src="https://64.media.tumblr.com/1493bb4b3963808ff1592574beb39548/df34eaf2a7220213-58/s75x75_c1/a5c51f3264bbc633be601ce8dcaa203540994145.gifv" alt="animated" /> <br>
   <img src="https://64.media.tumblr.com/ed702ff6bc5501298d3208aa00efc97f/df34eaf2a7220213-cf/s75x75_c1/1af5f1b076058c381a1fc75c7f9d6d8df12be7cc.gifv" alt="animated" />
   Extra: I'm off-tab a lot, so you can w2i or sit with me if you want!! idm either way
