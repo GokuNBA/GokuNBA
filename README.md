@@ -18,7 +18,7 @@
   Likes: Friday Night Funkin', EarthBound, Pokemon, Chikn Nuggit, MLP, webcomics, character design, hue shifting, etc.
   <img src="https://64.media.tumblr.com/1493bb4b3963808ff1592574beb39548/df34eaf2a7220213-58/s75x75_c1/a5c51f3264bbc633be601ce8dcaa203540994145.gifv" alt="animated" /> <br>
   <img src="https://64.media.tumblr.com/ed702ff6bc5501298d3208aa00efc97f/df34eaf2a7220213-cf/s75x75_c1/1af5f1b076058c381a1fc75c7f9d6d8df12be7cc.gifv" alt="animated" />
-  Extra: w2i.. also idm if you sit with me!! I'm usually either off-tab or spectating :P
+  Extra: I'm usually off-tab drawin or some shit so w2i :P also idm if you sit with me!!
   <img src="https://64.media.tumblr.com/673d19076c15e9c27ae5c20071fe6ebc/df34eaf2a7220213-ff/s75x75_c1/85a72b897758a6573483c44a37f74036f98cdbd5.gifv" alt="animated" /> <br>
   <br>
   <img src="https://64.media.tumblr.com/e3202ebd021567f8a6213f78a9d34c34/00dd49ccc1e9462c-ec/s250x400/94057a28bf0e6cac8e21ab93022873e8ed06dacc.pnj" />
