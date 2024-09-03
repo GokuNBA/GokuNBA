@@ -21,7 +21,6 @@ EarthBound pixels: me.. please pretend that the Jeff one was intentionally rever
   <br>
   <img src="https://64.media.tumblr.com/e3202ebd021567f8a6213f78a9d34c34/00dd49ccc1e9462c-ec/s250x400/94057a28bf0e6cac8e21ab93022873e8ed06dacc.pnj" /> <br>
   <br>
-  "sign my guest/atabook!!" umm nice try but ur not getting my IP address :P <br>
-  also we're literally playing a social game why tf are u going on an entirely different website to talk.. like what
+  "sign my guest/atabook!!" umm nice try but ur not getting my IP address :P
 </p>
 
