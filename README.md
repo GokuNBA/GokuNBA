@@ -18,7 +18,6 @@ EarthBound pixels: me.. please pretend that the Jeff one was intentionally rever
   <a href="https://beepbeepbastard.straw.page/"> strawpage!!</a> 
   <img src="https://64.media.tumblr.com/2a18daf60e66efc6466579102335b2d6/df34eaf2a7220213-b7/s75x75_c1/303e1188a260b4f3938b87fe62a6724020ce76e3.gifv" alt="animated" />
   <img src="https://64.media.tumblr.com/ed702ff6bc5501298d3208aa00efc97f/df34eaf2a7220213-cf/s75x75_c1/1af5f1b076058c381a1fc75c7f9d6d8df12be7cc.gifv" alt="animated" /> <br>
-  (i'll set up gallery and/or AMA pages soon) <br>
   <br>
   <img src="https://64.media.tumblr.com/e3202ebd021567f8a6213f78a9d34c34/00dd49ccc1e9462c-ec/s250x400/94057a28bf0e6cac8e21ab93022873e8ed06dacc.pnj" /> <br>
   <br>
